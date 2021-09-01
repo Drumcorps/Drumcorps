@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Vladislav
+- 👀 I’m interested in Data Analysis and visualization
+- 🌱 I’m currently learning data analysis tools
+- 📫 How to reach me: Telegram - @Riffer, Phone number: +79602270949
